@@ -1,0 +1,1 @@
+Bu joyda shaxsiy blog.
